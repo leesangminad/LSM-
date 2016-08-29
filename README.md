@@ -3,7 +3,10 @@
 ### wow
 *이탤릭체*  
 **볼드체**
-![사진](http://sejin90.tistory.com/1173)
+
+
+
+![사진](https://ncache.ilbe.com/files/attach/new/20160503/4255758/6740385127/7987385013/d6c970aa11e55c77699caa83c95a8c4b.jpg)
 
 
 
