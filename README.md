@@ -1,5 +1,4 @@
 # LSM
 ## wow
 ### wow
-_이탤릭체_ wow
-**볼드체** wow
+_이탤릭체_ wow __볼드체__ wow
