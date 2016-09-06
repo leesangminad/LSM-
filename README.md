@@ -10,4 +10,4 @@
 
 
 
-[동영상](https://youtu.be/xUVAoYiTWmE)
+[동영상](https://youtu.be/Re-2PXA-lZU?list=PL4zhI1F7PFk4qGKhISoHATqTZT_kW9jIB)
